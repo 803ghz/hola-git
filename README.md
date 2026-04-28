@@ -12,3 +12,9 @@
 - Videojuegos
 - Patinar
 
+## Habilidades
+
+- Escucha activa
+- Problem solving
+- Inteligencia emocional
+
