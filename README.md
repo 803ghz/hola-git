@@ -4,6 +4,11 @@
 
 ## Descripción
 
-25 años, málaga, nací el 18 de febrero, gatos user, dark souls enjoyer
+25 años, málaga, nací el 18 de febrero, me dedico a la tecnología en general.
 
+## Mis hobbies
+
+- Escuchar y hacer música
+- Videojuegos
+- Patinar
 
